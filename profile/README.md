@@ -34,3 +34,5 @@ All members are expected to adhere to the following code of conduct:
 * **Non-Discrimination:** Foster an inclusive environment free from discrimination.
 
 
+# Want to join the private originization? 
+Reach out to us https://t.me/Doomsday_X_Productions or https://t.me/DiamondDumper
